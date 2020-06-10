@@ -1,3 +1,3 @@
 # Incentive
 
-To collect something interting and creative.
+To collect something interesting and creative.
